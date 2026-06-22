@@ -86,7 +86,7 @@ Exploring how machine learning, statistics, and optimization can be used to conn
 
 ## 📫 Connect With Me
 
-💼 LinkedIn: www.linkedin.com/in/christopher-mbonu-phd
+💼 LinkedIn: www.linkedin.com/in/christopher-mbonu-30957611a
 
 ---
 
